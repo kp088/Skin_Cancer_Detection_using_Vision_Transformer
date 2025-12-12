@@ -10,7 +10,7 @@
  Kartavya Mandora  
  Kirtan Patel  
  
-**Date:** November 7, 2025  
+**Date:** December 12, 2025  
 
  **Instructor:** Prof. Reda Nacif ElAlaoui (Course Instructor)
 
